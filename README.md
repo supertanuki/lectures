@@ -1,6 +1,6 @@
 # Lectures
 
-Quelques notes de mes lectures.
+Quelques notes de mes lectures pour mon futur moi qui a tendance à tout oublier.
 
 ## Décembre 2022
 
