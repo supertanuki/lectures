@@ -1,1 +1,7 @@
 # L'année sauvage : Une vie sans technologie au rythme de la nature, Mark Boyle
+
+[Fiche Babelio](https://www.babelio.com/livres/Boyle-Lannee-sauvage--Une-vie-sans-technologie-au-ryth/1336617)
+
+_Imaginez une vie sans technologie, où l'être humain réapprend à vivre en harmonie avec la nature.
+Écrivain culte de la décroissance, Mark Boyle est connu pour se lancer des défis. En 2016, fort du succès de son année sans argent, il décide de renoncer à toute forme de technologie. Plus de portable, d'ordinateur, d'électricité ou d'eau courante. Pas de montre, de clés, de réveil. Il faut tout réapprendre. Mark Boyle explique son cheminement avec simplicité et humour. Il défend un mode de vie centré sur l'entraide, le bricolage et la solidarité. Il raconte son existence dans une maison de bois en pleine nature, où l'être humain peut à nouveau se fondre dans le paysage.
+L'Année sauvage est une histoire d'humains et d'animaux, de liens indéfectibles entre les êtres qui partagent un bout de terre, et dont Mark Boyle se fait l'observateur tour à tour enjoué, révolté, jamais désabusé._
