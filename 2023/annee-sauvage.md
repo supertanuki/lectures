@@ -1,4 +1,4 @@
-# L'année sauvage : Une vie sans technologie au rythme de la nature, Mark Boyle
+# L'année sauvage : Une vie sans technologie au rythme de la nature, Mark Boyle, 2021
 
 [Fiche Babelio](https://www.babelio.com/livres/Boyle-Lannee-sauvage--Une-vie-sans-technologie-au-ryth/1336617)
 
